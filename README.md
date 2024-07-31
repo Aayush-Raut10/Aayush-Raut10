@@ -1,3 +1,2 @@
-- 👋 Hi, I’m Aayush Raut
+- 👋 Hi, I’m Aayush Raut (Dolindra Bahadur Raut)
   
-
